@@ -1,1 +1,1 @@
-hello nice people
+hello nice people and have a nice day
